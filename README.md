@@ -1,1 +1,1 @@
-Arthur is 1 homo
+Arthur is HallaMans
